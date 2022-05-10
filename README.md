@@ -4,7 +4,7 @@ _What Is It?_
 
 LGUMath is Nothing Related To Math (lol)
 
-LGUMath is actually a game for unblocked games!
+LGUMath is actually a site for unblocked games!
 
 In LGUMath we have:
 
